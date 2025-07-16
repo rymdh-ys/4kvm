@@ -2,7 +2,7 @@
 
 4K影视是一个专注于提供超高清4K影视资源的在线平台，致力于为用户带来极致的视觉体验。该网站涵盖了丰富的影视内容，包括最新电影、热门电视剧、经典纪录片以及各类综艺节目等，满足不同用户的多样化需求。4K影视以其高清画质、丰富的资源库以及便捷的用户体验而受到影视爱好者的欢迎。
 
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14348.html" target="_blank" ><strong>4k影视最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://4kzaixianyingshi.xxsnav.com/" target="_blank" ><strong>4k影视最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
